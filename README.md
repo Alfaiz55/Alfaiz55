@@ -1,5 +1,5 @@
 #  Hi 👋, I'm Mohammad Alfej Alam
-Aspiring Data Scientist || Python Developer || BCA(Data Science) Student || 
+Aspiring Data Scientist || Python Developer || Graduate BCA(Data Science)  || 
 
 Email Me 👉 ✉️ **alfaizaalam8@gmail.com**
 
